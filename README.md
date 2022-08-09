@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **adarshsingh132002@gmail.com**
 
-- ⚡ Fun fact **u know what day is today**
+- ⚡ Fun fact **i love to code**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
